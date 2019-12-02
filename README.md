@@ -1,1 +1,1 @@
-india is mycountry
+TELANGANA IS STATE
