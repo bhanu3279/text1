@@ -1,2 +1,1 @@
-# text1
-addedtext from localrepo
+visual path added
