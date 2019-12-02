@@ -1,1 +1,1 @@
-visual path added
+TELANGANA IS STATE
